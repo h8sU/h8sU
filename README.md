@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @h8sU
-- 👀 I’m interested in programing
+- 👀 I’m interested ir cyber security & programing
 - 🌱 I’m currently learning Cyber security, netwok and some time programing
 - 💞️ I’m looking to collaborate on some fun project
 - 📫 How to reach me Discord h8sU
